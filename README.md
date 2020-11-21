@@ -1,6 +1,6 @@
 # 201410057
 
-+ :boy: : **FRIYAN PRASETYA**
++ :boy: : **Dendi Paugus Sukmaya**
 
 + :email: : ***dendipauguss1111@gmail.com***
 
